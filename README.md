@@ -1,1 +1,1 @@
-# waji
+# wajji
